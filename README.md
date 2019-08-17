@@ -1,2 +1,2 @@
 # Hi-world
-I'm Shuler
+I'm Shuler the ruler :^)
